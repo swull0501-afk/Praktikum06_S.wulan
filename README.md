@@ -1,0 +1,1 @@
+# Praktikum06_S.wulan
